@@ -13,4 +13,4 @@ José Ángel Sánchez Martínez
 
 Luisa Fernanda Espinal Montoya
 
-Zharick Dayana
+Zharick Dayana Vasquez Valenzuela
